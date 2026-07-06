@@ -1,4 +1,4 @@
-# 
+# New degen coin sniper bot extensions for Mac OS | Secure degen coin sniper bot extensions for PC Windows. Featuring real-time feeds and portfolio management — optimized for maximum performance on every platform.
 
 
 
